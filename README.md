@@ -1,1 +1,1 @@
-# g3raldatsc.github.io
+Hello, I'm Gerald Jepedro Sitorus
